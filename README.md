@@ -7,7 +7,7 @@ I'm passionate about  Bollywood music and entertainment. 🎶✨
 - 🎵 I create trendy Bollywood item songs using.
 - 🎬 Uploading music videos on Facebook (**Arts & Entertainment** category).
 - 📹 Running a stylish YouTube channel (HamzaTunes)
-- 🌍 Looking to grow my music brand like **T-Series**.
+- 🌍 Looking to grow my music brand like (HamzaTunes).
 
 ## 🔥 My Social Media
 [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@HamzaTunes)
